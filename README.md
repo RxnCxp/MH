@@ -1,1 +1,1 @@
-# MH
+# MHW-Wiki
